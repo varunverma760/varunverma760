@@ -4,7 +4,7 @@
 
 
 
-![image](https://i.imgur.com/RffGAKL.gif)
+![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSRqBL1-qfY7G9IMko62aU2_qZQexJkaUzO1Q&usqp=CAU)
 
 Hi there 👋.  I am Varun Verma
 
