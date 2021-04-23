@@ -4,7 +4,7 @@
 
 
 
-![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSRqBL1-qfY7G9IMko62aU2_qZQexJkaUzO1Q&usqp=CAU)
+![image](https://i.pinimg.com/originals/b0/d8/73/b0d87353aed85f9b0f27da57ed4f99e4.gif)
 
 Hi there 👋.  I am Varun Verma
 
