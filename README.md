@@ -29,8 +29,9 @@ Here are some ideas to get you started:
 
 ### About me
 
-Enthusiastic 2nd year student experience in C++ , Python and C abilities developed during study toward EEE degree in Software to a challenging role.
-I love to learn new things and always look for ways to contribute in any possible way.
+Enthusiastic second-year student looking for experience as an Intern. Eager to apply advanced C ++, a machine learning
+developed
+during study toward EEE degree in software to a challenging role
 
 To Connect with me
 
