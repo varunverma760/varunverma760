@@ -4,7 +4,7 @@
 
 
 
-![image](https://i.pinimg.com/originals/b0/d8/73/b0d87353aed85f9b0f27da57ed4f99e4.gif)
+![image](https://c.tenor.com/sZ8zYU7hT1wAAAAd/dance-party.gif)
 
 Hi there 👋.  I am Varun Verma
 
