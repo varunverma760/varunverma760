@@ -4,7 +4,7 @@
 
 
 
-![image](https://c.tenor.com/sZ8zYU7hT1wAAAAd/dance-party.gif)
+![image](https://c.tenor.com/1VWQzoPMYeAAAAAd/the-office-classy.gif)
 
 Hi there 👋.  I am Varun Verma
 
