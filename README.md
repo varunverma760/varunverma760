@@ -29,7 +29,7 @@ Here are some ideas to get you started:
 
 ### About me
 
-Enthusiastic second-year student looking for experience as an Intern. Eager to apply advanced C ++, a machine learning
+Enthusiastic third-year student looking for experience as an Intern. Eager to apply advanced C ++, a machine learning
 developed
 during study toward EEE degree in software to a challenging role
 
